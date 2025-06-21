@@ -1,2 +1,3 @@
 # ConnectToTalk
-🔗 [Click here to download Deaf and Mute Assistant App (.aia)](https://drive.google.com/file/d/1dNv7e96dRzKXMNmqRlu7vI-2Cn6af6G1/view?usp=sharing)
+click here to download the file
+https://drive.google.com/file/d/1u2i1MWx3O9LG5PdVuiJRj2nENNthZHa8/view?usp=sharing
